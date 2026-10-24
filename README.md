@@ -2082,7 +2082,7 @@ https://image.invaluable.com/housePhotos/brayco/51/793551/H22976-L409774069.JPG
 
 **英国の製造標準化。ドイツの剛健な職人工学。北米の施術者主導型設計。日本の精密加工技術。**
 
-その融合を具体化する製品がFREIHEITであり、その設計思想を材料・振動研究へ展開する開発機がPlankeである。
+その融合を具体化する製品がFREIHEITであり、その設計思想を材料・振動研究へ展開する完成機が FREIHEIT である。
 
 **Tattoo Artist × Machine Designer × Machine Builder**
 
